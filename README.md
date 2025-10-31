@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @aumdhokia
-- 👀 I’m interested in football,editing,coding
+- 👀 I’m interested in football,video editing,coding
 - 🌱 I’m currently learning editing,coding,football
-- 💞️ I’m looking to collaborate on youtube
 - 📫 How to reach me email me
 - 😄 Pronouns: ...
 - ⚡ Fun fact: i learn coding from my brother...
